@@ -1,1 +1,1 @@
-# Studying_proces
+# Studying_process
